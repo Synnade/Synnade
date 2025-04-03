@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sudhansh
+  - 👋 Hi, I’m @Synnade
 - 👀 I’m interested in Evolving the world
 - 🌱 I’m currently learning I don't know
 - 💞️ I’m looking to collaborate on Money
